@@ -7,5 +7,5 @@ Want gifs for anyone?
 .
 .
 .
-Here you fo
+Here you go
       https://venkateshjamge.github.io/gifs/
